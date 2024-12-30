@@ -1,0 +1,1 @@
+# RJinNewType.github.io
